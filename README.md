@@ -1,2 +1,2 @@
 # Voltronix
-Voltronix Contracting LLC is a MEP contracting company in Dubai. Our Contractors are well enough to deliver MEP contracting services to the customers. 
+Voltronix Contracting LLC is a Mechanical-Electrical-Plumbing(MEP) contracting service company in Dubai. Our Contractors are well enough to deliver MEP contracting services to the customers. Moreover, we are into civil contracting services that covers the construction of villas, swimming pools, substations, warehouses etc. We also extend our services as one of the best fit out company in UAE, elevating the elegance of your office interiors, shop interiors and villa interiors.
